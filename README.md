@@ -1,5 +1,5 @@
 #                                                                   Maitri
-![logo(transparent)](https://user-images.githubusercontent.com/95957394/189527946-5f5231b5-646b-4f89-8833-ce3e8c3fb623.png)
+![WhatsApp Image 2022-09-11 at 5 50 46 PM](https://user-images.githubusercontent.com/95957394/189528061-98907546-dfcf-4420-ba7b-aa2b281ce52f.jpeg)
 
 
 "I always said that to get India stronger, first strengthen its roots, and all our roots are our country's interiors, rural areas, and villages."
